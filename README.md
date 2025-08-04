@@ -1,8 +1,5 @@
 # 杨景媛
 
-信息整理自:
-[tg](https://t.me/zhinared/8145)
-
 | | |
 | --- | --- |
 | 性别	| 女 |
@@ -27,6 +24,3 @@
 | 微博账号 | https://weibo.com/u/5590497443（该账号因被投诉违反《微博社区公约》的相关规定，现已无法查看）</br> https://weibo.com/u/6558449466（昵称为还好-0725） |
 | 抖音账号 | https://www.douyin.com/user/75294606498 （该账号已注销） |
 | 微信账号 | wxid_da9qmw7ervsh22</br> wxid_bddwewg3ol2q62 </br> wxid_7eaznhrvcgij20 |
-
-![1](1.png)
-![2](2.png)
