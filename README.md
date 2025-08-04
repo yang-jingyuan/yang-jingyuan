@@ -1,7 +1,6 @@
 # 杨景媛
 
 信息整理自:
-[杨景媛的个人信息](https://github.com/zouzhekang/YJYpaper/issues/76)
 [tg](https://t.me/zhinared/8145)
 
 | | |
